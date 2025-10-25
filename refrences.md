@@ -1,2 +1,2 @@
 # References
-References available upon request.
+Octocat slays!
